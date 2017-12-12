@@ -1,2 +1,1 @@
-# hope
-asjbdwsdmb
+a girl named tinker never smiled again
